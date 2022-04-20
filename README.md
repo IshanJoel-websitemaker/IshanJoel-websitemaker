@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @IshanJoel-websitemaker
+- 👀 I’m interested in website development and im 10
+- 🌱 I’m currently learning full stack website developmenton UUUUDEMY
+- 💞️ I’m looking to collaborate on idk what that means
+- 📫 How to reach me CALLLLLLLLLLLLLL MEEEEEEEEEEEEE with any of THEEESE Numbers 9581990114 or 90005235241 or send me an E-Mail to this e mail address ishan.joel.150423@gmail.com or ishan.joel2012@gmail.com
+- ok so yea ok BYEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE. ⚆_⚆ (●◡●) btw if u wanna send me something i like beyblade ok bye ty for checking this out
